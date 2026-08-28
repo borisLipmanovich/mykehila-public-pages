@@ -14,7 +14,7 @@ The full Privacy Policy is available through the GitHub Pages website associated
 
 For questions regarding myKehila or its Privacy Policy, please contact:
 
-**Email:** YOUR_EMAIL_ADDRESS
+**Email:** boris.lipmanovich@gmail.com
 
 ---
 
